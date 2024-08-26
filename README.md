@@ -19,7 +19,7 @@
 </p>
 
 <p align="center">
-  ⚡ Fun fact: <strong>Call me Toma</strong>
+  ⚡ Fun fact: <strong>Call me Tharu</strong>
 </p>
 
 ---
